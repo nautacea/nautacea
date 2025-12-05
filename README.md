@@ -1,4 +1,4 @@
-probably the one that's drawing marine/extinct animals on your strawpage
+lets talk about wildlife 
 
 ![til](https://files.catbox.moe/1os1f1.gif)
 
