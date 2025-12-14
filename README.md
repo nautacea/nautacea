@@ -1,4 +1,7 @@
-lets talk about wildlife 
+enthusiast of killer whales, marine science and conservation, & other marine mammals
+
+https://srkw.carrd.co/#learnmore
+
 
 ![til](https://files.catbox.moe/g279fq.gif)
 
