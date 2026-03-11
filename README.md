@@ -1,5 +1,5 @@
 <div align="center">
-enthusiast of killer whales, marine science and conservation, & other marine mammals
+enthusiast of killer whales, marine science and conservation, & extinct fauna
 
 https://srkw.carrd.co/#learnmore
 
