@@ -2,6 +2,7 @@
 enthusiast of killer whales, marine science and conservation, & extinct fauna
 
 https://srkw.carrd.co/#learnmore
+https://artfight.net/~Nautacea
 
 
 ![til](https://files.catbox.moe/g279fq.gif)
