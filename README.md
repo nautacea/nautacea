@@ -1,6 +1,8 @@
 <div align="center">
 enthusiast of killer whales, marine science and conservation, & extinct fauna
 
+dm me to assign you a cetacean!
+
 https://srkw.carrd.co/#learnmore
 
 https://artfight.net/~Nautacea
