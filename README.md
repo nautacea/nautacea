@@ -1,11 +1,9 @@
 <div align="center">
 enthusiast of killer whales, marine science and conservation, & extinct fauna
 
-dm me to assign you a cetacean!
+taking animal drawing requests for whiteboard or if your strawpage gimmicks work
 
 https://srkw.carrd.co/#learnmore
-
-https://artfight.net/~Nautacea
 
 
 ![til](https://files.catbox.moe/g279fq.gif)
