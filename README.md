@@ -5,6 +5,8 @@ enthusiast of killer whales, marine science and conservation, & extinct fauna
 
 taking animal drawing requests for whiteboard or if your strawpage gimmicks work
 
+https://nautacea.straw.page/
+
 https://srkw.carrd.co/#learnmore
 
 
